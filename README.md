@@ -1,9 +1,9 @@
-[# my-figma-digining
+[# my-figma-designing
 food  digining
 ](https://streamable.com/brf4oq)
 
 [# my-we_demo
-food  digining](https://streamable.com/56ow3f)
+food  designing](https://streamable.com/56ow3f)
 
 
 
